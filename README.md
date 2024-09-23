@@ -26,7 +26,7 @@ Previous Notes:
 结语：
 	如果您需要作者的技术支持、购买碳板、打印件实体，请联系微信：slty090226或哔哩哔哩账号【碎恋彤云】（uid：667964492）或【Slty_fpv】（uid：3546659755657229）
 Epilogue:
-	If you need the author's technical support, purchase carbon plates, and print entities, please contact WeChat: slty090226 or Bilibili account [Broken Love Tongyun] (uid: 667964492) or 	[Slty_fpv] (uid: 3546659755657229)
+	If you need the author's technical support, purchase carbon plates, and print entities, please contact WeChat: slty090226 or Bilibili account [碎恋彤云] (uid: 667964492) or 	[Slty_fpv] (uid: 3546659755657229)
 	Stay: The author is Chinese, and if you use a language other than Chinese, you may not get the best technical support
 
 最后一次编写：2024年04月07日
